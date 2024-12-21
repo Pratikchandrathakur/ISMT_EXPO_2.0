@@ -41,7 +41,7 @@ Contributions are welcome! If you have any ideas or improvements, feel free to o
 
 ## 📬 Contact
 
-If you have any questions or feedback, please reach out to me at [your-email@example.com].
+If you have any questions or feedback, please reach out to me at pratikchandrathakur@gmail.com.
 
 ---
 
